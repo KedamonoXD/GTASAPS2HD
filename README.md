@@ -6,4 +6,6 @@ Proper Fixes: https://www.mixmods.com.br/2022/08/sa-proper-fixes/
 
 Project Immerse-Yourself: https://www.mixmods.com.br/2022/01/project-immerse-yourself-prelight-melhorado/
 
+Improved Lamps: https://www.mixmods.com.br/2021/09/improved-lamps-v0-8-postes-remasterizados-em-hd/
+
 Project Behind Space of Realities: https://www.mixmods.com.br/2018/06/project-behind-space-of-realities-todas-as-versoes/
